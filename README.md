@@ -1,4 +1,4 @@
-# Olá! Sou o Ray (também conhecido como TwiizzyRich) 👋
+# 🏊‍♂️TwiizzyRich
 
 Seja bem-vindo(a) ao meu perfil!
 Aqui você encontra um pouco mais sobre mim e os projetos nos quais estou envolvido.
